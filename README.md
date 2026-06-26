@@ -1,2 +1,2 @@
 # Refugio-Literario
-Trabalho.
+Trabalho. Nada mais.
